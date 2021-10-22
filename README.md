@@ -1,1 +1,1 @@
-# miraccelikbas.github.io/miraccelikbas/
+# miraccelikbas.github.io
